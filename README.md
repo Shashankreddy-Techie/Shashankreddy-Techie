@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on MS / GOOGLE
 - 📫 How to reach me INSTA @shashank_reddyns
 - 😄 Pronouns: he
-- ⚡ Fun fact: I am too lazy for this world! so i updated mt self.
+- ⚡ Fun fact: I am too lazy for this world! so i updated my self.
 
 <!---
 Shashankreddy-Techie/Shashankreddy-Techie is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
