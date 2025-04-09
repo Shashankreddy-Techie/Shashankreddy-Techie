@@ -1,5 +1,5 @@
 # 💫 About Me:
-Hello! I'm N. Shashank Reddy, a final year B.Tech student with a passion for technology and innovation. I am currently pursuing my degree in COMPUTER SCIENCE & ENGINEERING WITH AI at PARUL University. As I approach the end of my academic journey, I am excited to share my projects and collaborate with others in the tech community.Looking forward to our Future!!!!!!!!!!!
+Hello! I'm N. Shashank Reddy, a final year B.Tech student with a passion and desire for technology and innovation. I am currently pursuing my degree in COMPUTER SCIENCE & ENGINEERING WITH AI at PARUL University. As I approach the end of my academic journey, I am excited to share my projects and collaborate with others in the tech community.Looking forward to our Future!!!!!!!!!!!
 
 
 ## 🌐 Socials:
